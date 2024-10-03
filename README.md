@@ -1,1 +1,1 @@
-i woke up in a new bugatti
+WHY DID i woke up in a new bugatti
